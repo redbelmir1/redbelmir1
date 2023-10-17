@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @redbelmir1, I am both french and moroccan. 
+- 👀 I’m interested in Sports in general, discussing about different topics. I see knowledge as the best money exchange : by giving knowledge you don't loose it.  
+- 🌱 I’m currently learning about finance and actually performing my data science skills
+- 💞️ I’m looking to collaborate on data science project : all ideas are welcome
+- 📫 Instagram : Redaa_belmir 
